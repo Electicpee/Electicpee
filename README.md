@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Electicpee
+- 👀 I’m interested in music, gaming
+- 🌱 I’m currently trying to make a youtube channel
+- 💞️ I’m looking to collaborate on nothing much
+- 📫 How to reach me discord, ..wisdom#4352
